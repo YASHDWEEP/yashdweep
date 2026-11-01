@@ -350,11 +350,7 @@ Earned the **50 Days Badge** in 2025 and 2026 and practiced
     width="45%"
   />
 </p>
-<hr>
 
-<hr>
-
-<hr>
 
 <hr>
 
